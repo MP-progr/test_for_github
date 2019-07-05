@@ -4,8 +4,7 @@ Held at the Fawkes Training Room on 5th November from 13:00 to 17:00
 ### Trainers
 Ash.    
 Mark.   
-Bischte behindert oder was
-GUCK MA VOR DIR
+
 
 ## Topics
 Headings 
